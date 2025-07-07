@@ -1,6 +1,6 @@
 🚀 https://elitestress.st | The Most Powerful & Reliable IP Stresser on the Market 🔥
 
-<a href="https://elitestress.st?github"><img src="https://ibb.co/8nFcPjkV" alt="pic" border="0"></a>
+<a href="https://elitestress.st?github"><img src="https://i.ibb.co/xtjGw8qm/elitenetwork.gif" alt="pic" border="0"></a>
 
 Join 400+ active users and over 2,000 satisfied clients who trust EliteStress.st for unmatched performance, privacy, and ease of use.
 
@@ -19,4 +19,4 @@ Why Choose Us?
 🔗 Panel: https://elitestress.st
 👥 24/7 Support / Contact: https://telegram.eliteservices.st
 
-<a href="https://elitestress.st?github"><img src="https://ibb.co/jPMGqZkV" alt="standard-3" border="0"></a>
+<a href="https://elitestress.st?github"><img src="https://i.ibb.co/HLmdGrZQ/photo-2025-07-07-14-35-40.jpg" alt="standard-3" border="0"></a>
